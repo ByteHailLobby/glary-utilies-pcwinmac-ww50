@@ -1,4 +1,4 @@
-# 
+# Nouveau Glary Utilities extensions pour Mac OS | Natif Glary Utilities extensions pour PC Windows. Avec profils de nettoyage personnalisés et paramètres privés — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
